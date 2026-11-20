@@ -6,8 +6,7 @@ $\Large\color{#f00}{\textsf{I block freely.}}$
    \- \- \- \- \- \- \- \- / / welcome !! / /  - - - - - - - -
 
   
-                 !
-⠀　⠀  　⠀ the sin incarnate   ⋮  he . they　　 　  
+⠀⠀  　⠀ the sin incarnate   ⋮  he . they　　 　  
 
 
 ⠀　　𐙚　　sys . ~40 members . fictk, yume 　 ₊  ◞　
