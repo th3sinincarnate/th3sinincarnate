@@ -29,11 +29,10 @@ $\tiny\color{#f00}{\textsf{ ' nobody has to know ! ' /lyr}}$
  
  yume!: wpnz(smg4), elliot(WAAPP), noli(myth), Sebastian(pressure{SEE BELOW!!!!}), mafioso(dg+4saken)
 
- 
+
  !!!!!! HALT !!!!!!
 
- 
- $\Large\color{#f00}{\textsf{Do not interact Ren supporters, you are disgusting supporting a woman who framed a man for something so disgusting, and has made herself very obvious she was doing it for clout and wanting to destroy Zeal's life.}}$
+ $\color{#f00}{\textsf{Do not interact Ren supporters, you are disgusting supporting a woman who framed a man for something so disgusting, and has made herself very obvious she was doing it for clout and wanting to destroy Zeal's life}}$
 
  
  thank  you  for  reading  <  3 
