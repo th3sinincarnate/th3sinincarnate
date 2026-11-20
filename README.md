@@ -32,7 +32,10 @@ $\tiny\color{#f00}{\textsf{ ' nobody has to know ! ' /lyr}}$
 
  !!!!!! HALT !!!!!!
 
- $\color{#f00}{\textsf{Do not interact Ren supporters, you are disgusting supporting a woman who framed a man for something so disgusting, and has made herself very obvious she was doing it for clout and wanting to destroy Zeal's life}}$
+ $\color{#f00}{\textsf{DNI}}$
+
+
+^Ren supporters, you are disgusting supporting a woman who framed a man for something so disgusting, and has made herself very obvious she was doing it for clout and wanting to destroy Zeal's life
 
  
  thank  you  for  reading  <  3 
